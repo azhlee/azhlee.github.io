@@ -9,7 +9,7 @@ Aside from being an entertainer, in my spare time I focus on providing technical
 
 ## Current Interests and Projects:
 
-- - Developing my second studio album. Check out my recent singles [Still Got Time](https://www.youtube.com/watch?v=K4ZeDuKF4m8)
+- Developing my second studio album. Check out my recent singles [Still Got Time](https://www.youtube.com/watch?v=K4ZeDuKF4m8)
 and [Dusk Till Dawn](https://www.youtube.com/watch?v=tt2k8PGm-TI)
 - Open Source Software Development
 - Zayn x Versus, my fashion line for Donatella Versace
